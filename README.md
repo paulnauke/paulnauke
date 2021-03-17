@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @paulnauke
+- 📫 How to reach me paul.nauke@gmail.com
