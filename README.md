@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @paulnauke
-- 📫 How to reach me paul.nauke@gmail.com
+- 📫 How to reach me nauke@webtale.de
+- 🚀 We make your dream come true. Work with us @webtale
